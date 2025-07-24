@@ -1,1 +1,2 @@
-![Sillyyyy]([https://files.catbox.moe/qfvggk.webp](https://static.tvtropes.org/pmwiki/pub/images/is4coverricolors.jpg))
+![Sillyyyy](![is4coverricolors](https://github.com/user-attachments/assets/2b5774db-16ea-4b7e-a708-e72a6bb8f554)
+)
