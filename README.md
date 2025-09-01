@@ -6,4 +6,4 @@ And lastly for Pony Town, I go AFK a lot without saying anything- So I apologize
 
 I love uh uhm- sonic the hedgehog, A LOT- Though I'm not very into the games themselves. Instead, I'm mostly into the IDW comics and the .EXE community!
 
-![Faggot](https://files.catbox.moe/kgcyn1.webp)
+![Faggot]([https://files.catbox.moe/kgcyn1.webp](https://pbs.twimg.com/media/GhwnUTmagAEkDTa?format=jpg&name=large))
