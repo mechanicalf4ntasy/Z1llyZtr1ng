@@ -6,4 +6,6 @@ And lastly for Pony Town, I go AFK a lot without saying anything- So I apologize
 
 I love uh uhm- Knights of Guinevere uhm uh mu hm.... A LOT... TOO MUCH
 
+***All art used on github is made by Dana Terrace ! ! !***
+
 ![Faggot](https://pbs.twimg.com/media/GhwnUTmagAEkDTa?format=jpg&name=large)
